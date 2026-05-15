@@ -7,7 +7,7 @@
 <img src="https://i.postimg.cc/G3qrkDFH/Untitled162-20260512231042.png" width="500px">
   </div>
 <p align="center">﹕ ꒰ა <a href="https://rentry.co/knostkrev">rentry</a> ♱ <a href="https://napochan.moe/profile.php?id=507">napochan</a> ♱ <a href="https://pronouns.cc/@imperial">pronouns.cc</a> ♱ <a href="https://x.com/64xs2ry8qz">twt</a> ﹒⟢</p>
-<p align="center"><a href="https://youtu.be/vlgiWBCbCJk?si=4r5rP72IFuSz3LRd"><sub>" lifeless body, slouching dead. lecherous abscess where you once had a head "</sub></a></p>
+<p align="center"><a href="https://youtu.be/3aHAkdfbA5U?si=CcJq4zxQ83Rk8bPU"><sub>" ты нужна мне как дым моим лёгким "</sub></a></p>
   <div align="center">
 <img src="https://i.postimg.cc/xd4nG9n2/Untitled220-20260510172942.png" width="500px" align="center">
   </div>
