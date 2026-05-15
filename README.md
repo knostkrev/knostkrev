@@ -1,5 +1,5 @@
 <p align="center">
-  <img src="https://komarev.com/ghpvc/?username=knostkrev&label=hostages&color=lightgrey" />
+  <img src="https://komarev.com/ghpvc/?username=knostkrev&label=Captives:&color=lightgrey" />
 </p>
 <body>
 <p align="center"><a href="https://youtu.be/BKc8PZT6DoU?si=diLSAzLdgwQrb6I5"><sub>" watch the blood drip, all the male species are obsolete so get on your knees and <b><u>eat my rotten meat</u></b> "</sub></a></p>
