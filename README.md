@@ -2,12 +2,12 @@
   <img src="https://komarev.com/ghpvc/?username=knostkrev&label=Captives:&color=lightgrey" />
 </p>
 <body>
-<p align="center"><a href="https://youtu.be/BKc8PZT6DoU?si=diLSAzLdgwQrb6I5"><sub>" watch the blood drip, all the male species are obsolete so get on your knees and <b><u>eat my rotten meat</u></b> "</sub></a></p>
+<p align="center"><a href="https://youtu.be/BKc8PZT6DoU?si=pUzZVk9tl3cn_4dJ&t=165"><sub>" watch the blood drip, all the male species are obsolete so get on your knees and <b><u>eat my rotten meat</u></b> "</sub></a></p>
   <div align="center">
 <img src="https://i.postimg.cc/G3qrkDFH/Untitled162-20260512231042.png" width="500px">
   </div>
 <p align="center">﹕ ꒰ა <a href="https://rentry.co/knostkrev">rentry</a> ♱ <a href="https://napochan.moe/profile.php?id=507">napochan</a> ♱ <a href="https://pronouns.cc/@imperial">pronouns.cc</a> ♱ <a href="https://x.com/64xs2ry8qz">twt</a> ﹒⟢</p>
-<p align="center"><a href="https://youtu.be/3aHAkdfbA5U?si=CcJq4zxQ83Rk8bPU"><sub>" ты нужна мне как дым моим лёгким "</sub></a></p>
+<p align="center"><a href="https://youtu.be/3aHAkdfbA5U?si=arxNvTarmr1KG_Os&t=37"><sub>" ты нужна мне как дым моим лёгким "</sub></a></p>
   <div align="center">
 <img src="https://i.postimg.cc/xd4nG9n2/Untitled220-20260510172942.png" width="500px" align="center">
   </div>
