@@ -11,7 +11,7 @@
   </div>
 <p align="center">﹕ ꒰ა <a href="https://rentry.co/knostkrev">rentry</a> ♱ <a href="https://napochan.moe/profile.php?id=507">napochan</a> ♱ <a href="https://pronouns.cc/@imperial">pronouns.cc</a> ♱ <a href="https://x.com/64xs2ry8qz">twt</a> ﹒⟢</p>
 
-| it is i! your lord and savior, mikita! you may also refer to be as kitja if we are friends. i am a non-human entity lurking in the depths of a forest, but you may also refer to me as a boy. im 16<sub>,000</sub> years old, i generally do not care how old you are aslong as you are not older than 21 or younger than 13. i do prefer to keep friends whom are in my age range, though! [14-18]. |
+| it is i! your lord and savior, mikita! you may also refer to be as kitja if we are friends. you may also refer to me as entity. i am a non-human creature lurking in the depths of a forest, but you may also refer to me as a boy. im 16<sub>,000</sub> years old, i generally do not care how old you are aslong as you are not older than 21 or younger than 13. i do prefer to keep friends whom are in my age range, though! [14-18]. |
 |-------------------|
 
   <div align="center">
@@ -25,7 +25,7 @@
 <img src="https://i.postimg.cc/Hs0mqkyB/Untitled230-20260517192955.png" width="600px" align="center">
   </div>
 
-| i am a selective sharing yumeshipper. i yumeship with the characters the knocker, lenny, and august [minecraft horror mods]. i do not mind if you also yumeship with them, but i will become a bit upset if you claim to "love _ the most/more than me" right in front of my face, haha. |
+| i am a selective sharing yumeshipper. i yumeship with the characters the knocker, lenny, and august [minecraft horror mods]. i do not mind if you also yumeship with them, but i will become a bit upset if you claim to "love _ the most/more than me" right in front of my face, haha. furthermore, i have an oc and a persona which i often draw with my yumeships, such as the guy in my profile picture. that is my persona, his name is entity. |
 |-------------------|
   <div align="center">
 <details>
