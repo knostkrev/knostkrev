@@ -9,7 +9,7 @@
   <div align="center">
 <img src="https://i.postimg.cc/xd4nG9n2/Untitled220-20260510172942.png" width="500px" align="center">
   </div>
-<p align="center">﹕ ꒰ა <a href="https://rentry.co/knostkrev">rentry</a> ♱ <a href="https://napochan.moe/profile.php?id=507">napochan</a> ♱ <a href="https://pronouns.cc/@imperial">pronouns.cc</a> ♱ <a href="https://x.com/64xs2ry8qz">twt</a> ﹒⟢</p>
+<p align="center">﹕ ꒰ა <a href="https://rentry.co/knostkrev">rentry</a> ♱ <a href="https://napochan.moe/profile.php?id=507">napochan</a> ♱ <a href="https://pronouns.cc/@imperial">pronouns.cc</a> ♱ <a href="https://x.com/64xs2ry8qz">twt</a> ♱ <a href="https://knostkrev.atabook.org/">atabook</a> ﹒⟢</p>
 
 | it is i! your lord and savior, mikita! you may also refer to be as kitja if we are friends. you may also refer to me as entity. i am a non-human creature lurking in the depths of a forest, but you may also refer to me as a boy. im 16<sub>,000</sub> years old, i generally do not care how old you are aslong as you are not older than 21 or younger than 13. i do prefer to keep friends whom are in my age range, though! [14-18]. |
 |-------------------|
