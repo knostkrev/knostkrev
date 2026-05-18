@@ -45,6 +45,15 @@
 </details>
 </div>
 
+  <div align="center">
+<details>
+<summary><p align="center"><i>[ENTITY art gallery]</i></p></summary>
+
+<p align="center"><img src="https://i.postimg.cc/kXqbCK8K/Untitled148-20260515134919.png" width="300px"> <img src="https://i.postimg.cc/kXqbCK8S/Untitled149-20260515204704.png" width="300px"> <img src="https://i.postimg.cc/hjVXWttX/asdfghjkl.png" width="300px"></p>
+
+</details>
+</div>
+
 <p align="center"><a href="https://youtu.be/v-TixNRfbfA?si=ctVYqnCZDUVd7-yu&t=173"><sub>" i dont mean to make it seem like salmon upstream, are you afraid, are you afraid of me. "</sub></a></p>
   <div align="center">
 <img src="https://i.postimg.cc/7Y14FZ2s/Untitled229-20260517192808.png" width="600px" align="center">
