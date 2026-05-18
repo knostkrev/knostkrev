@@ -36,6 +36,15 @@
 </details>
 </div>
 
+  <div align="center">
+<details>
+<summary><p align="center"><i>[open me 4 music!]</i></p></summary>
+
+<p align="center">I listen to many bands/genres. As long as it's good, I will listen. However, my favorite genres are horrorcore, DSBM, industrial, industrial metal, and nu metal. some of my favs are: <b>7раса</b>, ado, alex g, <b>amatory</b>, and one, artery eruption, baby metal, baby soup, belial, <b>big ass truck</b>, bilskirnir, <b>butchers harem, cannibal corpse,</b> car seat headrest, cheereader roadkill, coma cinema, dazey and the scouts, deco*27, deftones, dingus, duster, the garden, <b>genitorturers</b>, gezebelle gaburgably, gramma, green day, guchiry, him, iyowa, <b>john congleton and the nighty nite,</b> joy again, kairiki bear, ken ashcorp, kikuo, kikuohana, kmfdm, korn, lady gaga, lemon demon, ligonis24, limp bizkit, linkin park, mac demarco, machine girl, maretu, <b>mc bushpig,</b> mccafferty, meth wax, miss construction, mook, <b>narrow head,</b> negative xp, nirvana, of montreal, the oozes, pantera, <b>the paper chase,</b> pearl jam, phf, puzzle, <b>radiohead, rammstein,</b> roar, self, shuvel, sign crushes motorist, slipknot, snot, sonic youth, soundgarden, suicidal rap orgy, system of a down, tally hall, tv girl, and weezer.</p>
+
+</details>
+</div>
+
 <p align="center"><a href="https://youtu.be/v-TixNRfbfA?si=ctVYqnCZDUVd7-yu&t=173"><sub>" i dont mean to make it seem like salmon upstream, are you afraid, are you afraid of me. "</sub></a></p>
   <div align="center">
 <img src="https://i.postimg.cc/7Y14FZ2s/Untitled229-20260517192808.png" width="600px" align="center">
