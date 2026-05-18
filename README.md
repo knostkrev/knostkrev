@@ -1,5 +1,5 @@
 <p align="center">
-  <img src="https://komarev.com/ghpvc/?username=knostkrev&label=Captives:&color=lightgrey" />
+  <img src="https://komarev.com/ghpvc/?username=knostkrev&label=Stalkers:&color=lightgrey" />
 </p>
 <body>
 <p align="center"><a href="https://youtu.be/_tLNXSuF9kg?si=64HltongToHbruYV&t=85"><sub>" ...and im drawing a bloodbath with or without you "</sub></a></p>
